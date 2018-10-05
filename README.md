@@ -1,0 +1,3 @@
+# rizki
+cobacoba
+jangannakal
